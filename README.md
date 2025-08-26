@@ -1,1 +1,1 @@
-# jj-motors-gaborone.
+# JJ-motors-gaborone.
